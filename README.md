@@ -1,2 +1,2 @@
 # Soundscape-cooking
-Here is a the beginning of my cooking process. I added restaurant kitchen sounds to give it a real life feel.
+Here is my cooking soundscape narrative. I hope it makes you hungry
